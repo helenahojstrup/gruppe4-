@@ -1,0 +1,1 @@
+Jeg kan godt lide at male, og tegne, også lytter jeg meget til musik. 
